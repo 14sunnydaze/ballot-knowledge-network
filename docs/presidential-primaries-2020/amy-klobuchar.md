@@ -19,3 +19,5 @@
 * Klobuchar directly addressed taxes during her announcement speech saying, "We should close those tax loopholes designed by and for the wealthy and bring down our debt and make it easier for workers to afford childcare, housing, and education."  
 [Source: Amy Klobuchar announces 2020 presidential bid](https://youtu.be/0Z5-jDkC4XY) Start Video at 17:00
 
+# Campaign Finance
+(https://www.fec.gov/data/candidate/P80006117/)
